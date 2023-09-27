@@ -1,1 +1,0 @@
-# Quantitative-Comparison-of-Trend-Indicators-
